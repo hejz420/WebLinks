@@ -1,1 +1,1 @@
-# hejz.ml
+Basic site abaout socail links:)
